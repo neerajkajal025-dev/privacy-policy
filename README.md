@@ -1,0 +1,1 @@
+privacy polices of numbro
